@@ -1,2 +1,2 @@
 # SebastianTenorio
-Blog Personal - para el youtube y todo :D
+Blog Personal - para toda la marca personal
